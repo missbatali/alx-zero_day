@@ -1,1 +1,2 @@
-I am miss batali and I am gorgeous
+This life is hard
+
